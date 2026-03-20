@@ -3,6 +3,7 @@
 
 ![alt text](https://i.pinimg.com/736x/30/cf/14/30cf14d04042854f3d6315569342f7bc.jpg)
 
+
 I'm Bigender(but i feel more masculine) and ESTP kinda golden retriever personality maybee
 
 
@@ -12,4 +13,12 @@ I'm Bigender(but i feel more masculine) and ESTP kinda golden retriever personal
 I can be awkward sometimes don't mind me i'm not always energetic sadly,,
 
 
-![alt text](https://i.pinimg.com/736x/7e/a6/a6/7ea6a674f2cd0d74a3e12eecbbf4cc97.jpg)
+
+
+I also really love writing like poems but i've been writing a novel lately ^^
+
+
+![alt text](https://i.pinimg.com/736x/2d/9f/a9/2d9fa9669d814f7612f3bfa60e6b41b9.jpg)
+
+
+૮ • ﻌ - ა
