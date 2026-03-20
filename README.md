@@ -15,7 +15,7 @@ I can be awkward sometimes don't mind me i'm not always energetic sadly,,
 
 
 
-I also really love writing like poems but i've been writing a novel lately ^^
+I also really love writing poems, songs but i've been writing a novel lately ^^
 
 
 ![alt text](https://i.pinimg.com/736x/2d/9f/a9/2d9fa9669d814f7612f3bfa60e6b41b9.jpg)
