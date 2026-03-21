@@ -10,7 +10,7 @@ I'm Bigender(but i feel more masculine) and ESTP kinda golden retriever personal
 ![alt text](https://i.pinimg.com/736x/84/6f/ee/846fee6d8e45d3fc03998f35eefded85.jpg)
 
 
-I can be awkward sometimes don't mind me i'm not always energetic sadly,,
+I can be shy and exhausted sometimes don't mind me i'm not always energetic sadly,,
 
 
 
